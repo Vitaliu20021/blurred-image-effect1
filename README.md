@@ -1,0 +1,1 @@
+# blurred-image-effect1
